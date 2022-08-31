@@ -1,3 +1,3 @@
 # firstrepo
-Hola This is Lakshmi Kalynai From India.
-I am a Under Graduate Student from NRI Institute of Technology.
+Hola, This is Lakshmi Kalyani From India.
+I completed my bachelors from NRI Institute of Technology.
